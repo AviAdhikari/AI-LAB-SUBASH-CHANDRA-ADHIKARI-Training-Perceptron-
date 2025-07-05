@@ -1,0 +1,1 @@
+# AI-LAB-SUBASH-CHANDRA-ADHIKARI-Training-Perceptron-
